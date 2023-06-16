@@ -1,3 +1,5 @@
 - 👋 Hi, We're @Lawod
-- 👀 We're interested in video games
-- 📫 You can reach us by visiting www.lawod.com or our social media accounts
+- 👀 We're interested in indie games
+- 📫 You can reach us by visiting www.lawod.com and https://indiewod.com
+- 🕊 https://twitter.com/lawodcom
+- https://twitter.com/indiewod
